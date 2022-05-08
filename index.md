@@ -1,4 +1,4 @@
-## About Blog
+## MacTavish | Blog
 
 Hi my name is Md. Tajdar Alam Ansari. I am a student pursuing my Bachelors degree in Computer Science from Bhairab Ganguly College.
 
